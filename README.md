@@ -1,1 +1,1 @@
-# spaseskid-github.io
+# spaseskid.github.io
